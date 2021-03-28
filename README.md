@@ -1,0 +1,1 @@
+configuracion de plaska primera edicion 
